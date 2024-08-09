@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @uumeeyy (Name's Umer tho pronouced as Omer)
-- 👀 Gonna bulid my own E commerce store 
+- 👀 Gonna bulid my own E commerce store and become rich ahhhh dude (just like those fake tiktok course sellers)
 - 🌱 AHHHHH am learning javascript yes
 - 💞️ I’m looking to collaborate on ...
 - 📫 Nah it ain't that hard tho you can either email or can find my insta with exact same username
